@@ -1,1 +1,1 @@
-# 3_group3
+1)birinchi o'zgarish
